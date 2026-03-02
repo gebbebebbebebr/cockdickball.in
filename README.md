@@ -1,2 +1,0 @@
-# cockdickball.in
-crap site
